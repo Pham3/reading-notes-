@@ -10,7 +10,8 @@ I keep myself in a groth mindset by doing the following:
 -Never give up
 -My effort 
 
-## Table of contents 
+
+
 
 
 https://github.com/Pham3/reading-notes-/edit/main/README.md

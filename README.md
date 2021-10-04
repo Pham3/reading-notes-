@@ -15,4 +15,5 @@ I keep myself in a groth mindset by doing the following:
 
 
 ## Table of Contents 
-BIN +60.1 KB jpg inspirational.jpg 
+![image](https://user-images.githubusercontent.com/91857291/135921041-3d786121-00cd-49d5-8e44-a27a03c3fa2c.png)
+

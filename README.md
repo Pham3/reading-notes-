@@ -15,4 +15,4 @@ I keep myself in a groth mindset by doing the following:
 
 
 ## Table of Contents 
-
+BIN +60.1 KB jpg inspirational.jpg 

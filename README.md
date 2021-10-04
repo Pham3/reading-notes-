@@ -10,8 +10,9 @@ I keep myself in a groth mindset by doing the following:
 -Never give up
 -My efforts
 
+### My Github Profile
+[tonypham]https://github.com/Pham3/reading-notes-/edit/main/README.md
 
 
+## Table of Contents 
 
-
-https://github.com/Pham3/reading-notes-/edit/main/README.md

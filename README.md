@@ -8,7 +8,7 @@ Hello, I am a new to all this but i am learning!
 I keep myself in a groth mindset by doing the following:
 -learning from feedbacks 
 -Never give up
--My effort 
+-My efforts
 
 
 
